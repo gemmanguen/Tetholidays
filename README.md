@@ -13,3 +13,10 @@ https://hanopro.com/hanopro-news/why-second-trump-kim-summit-was-held-in-vietnam
 
 http://uscoldwar.weebly.com/korean-and-vietnam-war.html
 
+첫사랑
+
+Kim Jong Hwan (김종환) - 존재의 이유
+https://www.youtube.com/watch?v=Pim5HHyl6Eo
+
+Forever
+https://www.youtube.com/watch?v=1f5NWXKmRTI
