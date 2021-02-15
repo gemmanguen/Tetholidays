@@ -17,6 +17,7 @@ http://uscoldwar.weebly.com/korean-and-vietnam-war.html
 
 Kim Jong Hwan (김종환) - 존재의 이유
 https://www.youtube.com/watch?v=Pim5HHyl6Eo
+https://www.youtube.com/watch?v=_FAN-0APALM
 
 Forever
 https://www.youtube.com/watch?v=1f5NWXKmRTI
