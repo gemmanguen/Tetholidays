@@ -29,3 +29,5 @@ https://www.youtube.com/watch?v=1f5NWXKmRTI
 AI brings back voice of late South Korean singer
 
 https://www.youtube.com/watch?v=1dfs1TW5XNk&ab_channel=Reuters
+
+https://www.youtube.com/watch?v=HhyUipP-a2I
