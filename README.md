@@ -10,3 +10,6 @@ https://www.youtube.com/watch?v=yy1tTIsXEj4
 https://www.youtube.com/watch?v=O_QxnDqzpGY
 
 https://hanopro.com/hanopro-news/why-second-trump-kim-summit-was-held-in-vietnam.html
+
+http://uscoldwar.weebly.com/korean-and-vietnam-war.html
+
