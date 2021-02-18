@@ -4,9 +4,11 @@ https://www.slideshare.net/linhlantrang15/vietnamese-tet-holiday
 
 https://thongtinhanquoc.com/seollal/
 
+https://www.koreantopik.com/2019/02/kiip-5-141-tet-o-han-quoc-chuc-mung-nam.html
 
 
 부치지 않은 편지
+
 부치지 않은 편지 (Unsent Letter)_김광석 (Kim Kwang Seok)
 
 https://www.youtube.com/watch?v=yy1tTIsXEj4
