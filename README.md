@@ -2,6 +2,10 @@
 
 https://www.slideshare.net/linhlantrang15/vietnamese-tet-holiday
 
+https://thongtinhanquoc.com/seollal/
+
+
+
 부치지 않은 편지
 부치지 않은 편지 (Unsent Letter)_김광석 (Kim Kwang Seok)
 
